@@ -1,4 +1,4 @@
-# Nicolas Lozoya
+# **Nicolas Lozoya**
 *I'm From Atlanta, Georgia*
 
 ## Occupation:
